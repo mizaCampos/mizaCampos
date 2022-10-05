@@ -1,4 +1,4 @@
-### Oi, aqui é o mizael, Bem vindo ao meu GitHub👋
+### Oi, Sou mizael, Bem vindo ao meu GitHub👋
 
 ## 👦 Um pouco sobre mim:
 
